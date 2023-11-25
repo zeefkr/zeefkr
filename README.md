@@ -1,16 +1,15 @@
-### Hi there 👋
+# 👋 - Hello, my name is Zee
 
-<!--
-**zeefkr/zeefkr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## About Zee
 
-Here are some ideas to get you started:
+### Zee is a popular hacker, who uses the technology of Racmen X (Initial Plugin for self-coded operating systems - known as hosthack) to hack Games like ROBLOX, Minecraft and Fortnite.
+### Zee also uses AGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGGG (It's a long name for weird stuff, unpronounceable..) for other "needs" on-top of Racmen X/hosthack.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Zee is a dangerous person. Don't get near him! Here is a footage of 2022: [Youtube.Link](https://www.youtube.com/watch?v=rgtGoeVEmlw).
+### Zee is active since 2016. He hacked people and took down Roblox's page with Decal Creation spam.
+
+
+### We learn: "Don't get near zee, he can be in a bad mood and completely hack you."
+
+
+## This is by the way actually written by an unknown Developer and Zee himself.. (GitHub Account "zeefkr" belongs to him.)
